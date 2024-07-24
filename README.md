@@ -1,0 +1,5 @@
+- [https://medium.com/@EijaliKauppila](https://medium.com/@EijaliKauppila)
+- [https://www.quora.com/profile/Eijali-Kauppila](https://www.quora.com/profile/Eijali-Kauppila)
+- [https://www.reddit.com/user/Tall_Big6287/](https://www.reddit.com/user/Tall_Big6287/)
+- [https://www.youtube.com/@EijaliKauppila](https://www.youtube.com/@EijaliKauppila)
+- [https://x.com/EijaliKauppila](https://x.com/EijaliKauppila)
